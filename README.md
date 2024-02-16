@@ -3,7 +3,7 @@
 - - 🌱 I’m currently learning everything I can.
 - 💞️ I’m looking to collaborate on any platform 
 - 📫 How to reach me manalive54@outlook.com 
-- 😄 Pronouns: he, jom
+- 😄 Pronouns: he, him
 - ⚡ Fun fact: ...
 
 <!---
